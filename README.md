@@ -1,3 +1,3 @@
 ## 📱 Связаться со мной:
-- [Резюме на hh.ru](https://spb.hh.ru/resume/2b1679ffff0f7438860039ed1f6139656d534d)
-- [Telegram](https://t.me/itsveronika_K)
+- [Резюме на hh.ru](https://krasnodar.hh.ru/resume/0ecc579aff1081e5440039ed1f456f42564a43)
+- [Telegram](https://t.me/Pingvine191)
